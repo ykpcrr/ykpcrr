@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ykpcrr
+- 👀 I’m interested in syber hacking, Web desing
+- 🌱 I’m currently learning them also
+- 📫 How to reach me ykpcr.yakupacar@gmail.com
